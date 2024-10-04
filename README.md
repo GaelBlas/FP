@@ -19,4 +19,4 @@
 _texto italica_
 
 
-![Ternurinnes comiendo tac tac ](https://monclova.com/wp-content/uploads/2024/05/ternurin.jpg)
+![Ternurinnes comiendo tac tac ](https://pm1.aminoapps.com/7485/acadd72e21d300b17b741f79b1762ec03820e885r1-1024-1064v2_hq.jpg)

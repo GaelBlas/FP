@@ -19,4 +19,4 @@
 _texto italica_
 
 
-![Ternurinnes comiendo tac tac ]([https://blokkemx.com/cdn/shop/files/4905040153548_480x.jpg?v=1716251121](https://monclova.com/wp-content/uploads/2024/05/ternurin.jpg)
+![Ternurinnes comiendo tac tac ](https://monclova.com/wp-content/uploads/2024/05/ternurin.jpg)
